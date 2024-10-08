@@ -1,4 +1,4 @@
-## Hello, I'm Colt (coltacola) 🥃
+## Colt
 
 ### Information Technology Professional, Cybersecurity Student, and Computer Science Enthusiast
 
